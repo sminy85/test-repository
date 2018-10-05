@@ -16,6 +16,4 @@
 - 정소희
 
 # 토큰 이코노미
-[](ur
-
- l)
+![b886bdd8-7ef7-4a6c-a488-0d740067d943](https://user-images.githubusercontent.com/43868525/46522398-9e006400-c8bd-11e8-92bd-afb97006473b.jpeg)
